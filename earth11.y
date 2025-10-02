@@ -1,5 +1,5 @@
 earth has more living things than any other planet in the solar systerm
 human
-humans
+mans\women
 birds
 fishes
